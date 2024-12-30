@@ -41,5 +41,5 @@ This Service is not intended for individuals under the age of 13. We do not know
 We may update this Privacy Policy periodically. You are encouraged to review this page for any changes. Updates to this policy will take effect immediately upon posting.
 
 ## Contact Us
-If you have any questions or suggestions regarding this Privacy Policy, feel free to contact us at:
+If you have any questions or suggestions regarding this Privacy Policy, or to delete your details, feel free to contact us at:
 **Email:** sohebalam@hotmail.com
